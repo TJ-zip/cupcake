@@ -1,0 +1,3 @@
+# STOP LOOKING HERE YOU FOOL
+
+- Study Instead
